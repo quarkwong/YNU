@@ -1,0 +1,2 @@
+# YNU
+study at YNU
